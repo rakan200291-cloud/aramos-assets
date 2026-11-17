@@ -1,0 +1,1 @@
+# aramos-assets
